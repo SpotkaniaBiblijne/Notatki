@@ -6,11 +6,13 @@
 
 1. Czy Jezus i Jozue – to jest to samo imię?
 2. Co oznaczało imię Jezus?
-...
+
 ...**Pan Zbawia.**
+
 3. Co oznaczał przydomek Mesjasz?
-...
+
 ...**Wybawiciel.**
+
 4. Jaką symbolikę może mieć liczba 14-ście w języku hebrajskim?
 5. Czy Jechoniasz był przeklętym królem?
 6. Jakie przekleństwo było na przeklętym królu Izraela Jechoniaszu? (prawdopodobnie)
