@@ -5,10 +5,10 @@
 ### Spotkanie 1 Mt 1,1-17 (30 sierpnia 2016)
 
 1. Czy Jezus i Jozue – to jest to samo imię?
-2. Co oznaczało imię Jezus?
-..* __Pan Zbawia.__
-3. Co oznaczał przydomek Mesjasz?
-..* __Wybawiciel.__
+2. Co oznaczało imię Jezus?  
+__Pan Zbawia.__
+3. Co oznaczał przydomek Mesjasz?  
+__Wybawiciel.__
 4. Jaką symbolikę może mieć liczba 14-ście w języku hebrajskim?
 5. Czy Jechoniasz był przeklętym królem?
 6. Jakie przekleństwo było na przeklętym królu Izraela Jechoniaszu? (prawdopodobnie)
