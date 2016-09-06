@@ -7,7 +7,7 @@
 1. Czy Jezus i Jozue – to jest to samo imię?
 2. Co oznaczało imię Jezus?
 
-...**Pan Zbawia.**
+... **Pan Zbawia.**
 
 3. Co oznaczał przydomek Mesjasz?
 
