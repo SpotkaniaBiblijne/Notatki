@@ -43,3 +43,11 @@ __Iz 7,14__
 7. Jaki kraj był na wschodzie od Izraela (Jerozolimy) w czasach narodzin Jezusa?
 8. Czym była mirra?
 9. Czy mędrcy ze wschodu byli izraelitami? Nie, bo jest napisane, w Mt2,12, że wrócili do swojej ojczyzny. Czyli będąc w Judei nie byli w swojej ojczyźnie.
+
+### Spotkanie 4 Mt 1,13 (8 września 2016)
+
+1. Mt 2,18 - czego dotyczył ten opis u proroka Jerezmiasz?
+2. Dlaczego w innych źródłach historycznych nie przetrwały informacje o tak rzezi niemowląd?
+3. Dokąd wrócił Józef? Czy jak wyglądał podział admnistracyjny "ziemi Izraela" według Biblii i historii?
+4. Jaka jest odległość między Egiptem a Nazaretem?
+5. Skąd pochodzi proroctwo w Mt2,23 ?  
