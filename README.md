@@ -44,10 +44,20 @@ __Iz 7,14__
 8. Czym była mirra?
 9. Czy mędrcy ze wschodu byli izraelitami? Nie, bo jest napisane, w Mt2,12, że wrócili do swojej ojczyzny. Czyli będąc w Judei nie byli w swojej ojczyźnie.
 
-### Spotkanie 4 Mt 1,13 (8 września 2016)
+### Spotkanie 4 Mt 2,13 (8 września 2016)
 
 1. Mt 2,18 - czego dotyczył ten opis u proroka Jerezmiasz?
 2. Dlaczego w innych źródłach historycznych nie przetrwały informacje o tak rzezi niemowląd?
 3. Dokąd wrócił Józef? Czy jak wyglądał podział admnistracyjny "ziemi Izraela" według Biblii i historii?
 4. Jaka jest odległość między Egiptem a Nazaretem?
-5. Skąd pochodzi proroctwo w Mt2,23 ?  
+5. Skąd pochodzi proroctwo w Mt2,23 ? 
+
+### Spotkanie 5 Mt 3,1-11
+
+1. Co to jest ewangelia synoptyczna?
+2. Co to jest królestwo niebieskiej?
+3. Co miał na myśli mówiąc nawracajcie się?
+4. Co znaczy słowo chrzest w Biblii?
+5. W jakim źródle historycznym był zapisek o symbolicznym chrzcie?
+6. Kim byli saduceusze i faryzeusze?
+7. Jaką obietnice o potomkach dostał Abracham?
