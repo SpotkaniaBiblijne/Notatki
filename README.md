@@ -44,7 +44,7 @@ __Iz 7,14__
 8. Czym była mirra?
 9. Czy mędrcy ze wschodu byli izraelitami? Nie, bo jest napisane, w Mt2,12, że wrócili do swojej ojczyzny. Czyli będąc w Judei nie byli w swojej ojczyźnie.
 
-### Spotkanie 4 Mt 2,13 (8 września 2016)
+### Spotkanie 4 Mt 2,13-23 (8 września 2016)
 
 1. Mt 2,18 - czego dotyczył ten opis u proroka Jerezmiasz?
 2. Dlaczego w innych źródłach historycznych nie przetrwały informacje o tak rzezi niemowląd?
@@ -61,3 +61,13 @@ __Iz 7,14__
 5. W jakim źródle historycznym był zapisek o symbolicznym chrzcie?
 6. Kim byli saduceusze i faryzeusze?
 7. Jaką obietnice o potomkach dostał Abracham?
+
+### Spotkanie 6 Mt 3,17 - 4 ??
+
+1. Jak daleko jest Jordan od Galilei (Nazaretu - bo tam mieszkał)?
+2. Kto to jest diabeł?
+3. Co miało się wypełnić poprzez to, że Jan ochrzci Jezusa?
+4. Kiedy powstał Talmud?
+	od 2 do 5 wieku naszej ery
+5. Czy post jest pożyteczny?
+6. 
